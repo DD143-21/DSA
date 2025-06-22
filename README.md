@@ -39,5 +39,5 @@ To build strong problem-solving skills and track my consistency by learning in p
 
 ## 📬 Connect with me
 
-- Twitter: [@deepak_j24](https://twitter.com/deepak_j24)
+- Twitter: [@Deepak](https://x.com/deepakjalmoori)
 - LinkedIn: [Deepak Jalmoori](https://www.linkedin.com/in/deepak-j24)
